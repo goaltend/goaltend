@@ -6,8 +6,7 @@
   <table>
     <tr>
       <td>
-     ${\textsf{\color{#F5D9D7} Every}}$ ${\textsf{\color{#F5E0C4} other}}$ ${\textsf{\color{#F8EAD5} day}}$ ${\textsf{\color{#E5F4D9} I'm}}$ ${\textsf{\color{#E4E1EB} wondering}}$ ${\textsf{\color{#F4F3EA} (ᵕ•ᴗ•)}}$ <br>
-${\textsf{\color{#ECDCEC} What's}}$ ${\textsf{\color{#F5D9D7} a}}$ ${\textsf{\color{#F5E0C4} human}}$ ${\textsf{\color{#F8EAD5} being}}$ ${\textsf{\color{#E5F4D9} gotta}}$ ${\textsf{\color{#E4E1EB} be}}$ ${\textsf{\color{#ECDCEC} like?}}$ ${\textsf{\color{#F4F3EA} ₊˚⊹}}$<br>
+     ${\textsf{\color{#F5D9D7} All the girls say, "Sashay, Shantay, panther on the runway!"}}$
       </td>
     </tr>
   </table>
