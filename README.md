@@ -5,7 +5,7 @@ ${\textsf{\color{#BDB9BF} why dont I say it then...}}$
 <br>
 <br>
 <br>
-<a href="https://montembeault.atabook.org/">新book</a>   <a href="https://rentry.co/smonty">rentry</a>
+<a href="https://montembeault.atabook.org/">新book</a>ㅤㅤ<a href="https://rentry.co/smonty">rentry</a>
    ${\textsf{\color{#E5F0CE} c+h  ‎ ‎   and chalant}}$
 <br>
 <br>
