@@ -2,4 +2,12 @@
 <center>
 <p>ENFJ (Te > Ni > Se > Fi) NE-T ELFV LFVE2411 Sx/So Sx486 P468 mOXw[D]xs r[L]/U/Ei True Neutral Cognitive Sang-Phleg LE-CT GW:G AG-HD (IG) GPEEU⁴⁵⁵⁴⁴ [A]v/I/dn 5[Uʸ] — Gʳᵈ_0D¹ᵈ_Dᶜ_Tʳ - 4432 PE/PR A-34 1AON[Y]D SEAVUL S(E)FL Ax[O]/W/x E-21554</p>
   ㅤ <a href="https://docs.google.com/document/d/1F4Rta6w2Wmfjys7fz16vqhEDYDiJg8QUbUggPn9UEf8/edit?tab=t.0">Extended</a>ㅤㅤㅤ ㅤㅤ <a href="https://montembeault.atabook.org/">新book</a>ㅤㅤ ㅤㅤㅤ <a href="https://rentry.co/smonty">rentry</a> ㅤㅤ ㅤㅤ ㅤㅤAll the girls say, "Sashay, Shantay, panther on the runway!"
-    ㅤ Any touch is fine, talking is ok but I am awkward and might not respond
+<br>
+  <table>
+    <tr>
+      <td>
+     ${\textsf{\color{#F5D9D7} Every}}$ ${\textsf{\color{#F5E0C4} other}}$ ${\textsf{\color{#F8EAD5} day}}$ ${\textsf{\color{#E5F4D9} I'm}}$ ${\textsf{\color{#E4E1EB} wondering}}$ ${\textsf{\color{#F4F3EA} (ᵕ•ᴗ•)}}$ <br>
+${\textsf{\color{#ECDCEC} What's}}$ ${\textsf{\color{#F5D9D7} a}}$ ${\textsf{\color{#F5E0C4} human}}$ ${\textsf{\color{#F8EAD5} being}}$ ${\textsf{\color{#E5F4D9} gotta}}$ ${\textsf{\color{#E4E1EB} be}}$ ${\textsf{\color{#ECDCEC} like?}}$ ${\textsf{\color{#F4F3EA} ₊˚⊹}}$<br>
+      </td>
+    </tr>
+  </table>
