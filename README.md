@@ -11,3 +11,4 @@
       </td>
     </tr>
   </table>
+  <img src="https://komarev.com/ghpvc/?username=goaltend&style=flat-square&color=B6B9B2&label=views" alt="profile view counter" width="100" align="center">
