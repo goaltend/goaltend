@@ -1,6 +1,6 @@
 <img src="https://file.garden/aOpSviiQ5ho9r4vz/IMG_5673.png" width="100" align="left"> <img src="https://file.garden/aOpSviiQ5ho9r4vz/IMG_5672.png" width="100" align="left"> <img src="https://file.garden/aOpSviiQ5ho9r4vz/IMG_5671.png" width="100" align="left">
 <center>
-<p>Narcissist autist system. be my friend! I don't have much going on in my life. My discord is "montembeault."</p>
+<p>Narcissist autist system. be my friend! I don't have much going on in my life. My discord is "montembeault." My mood changes frequently because of disorders, same with pinions, just communicate with me yo. It's harder for me to be like this than it is for you to deal with smh</p>
   <br>
   <br>
   <br>
