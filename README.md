@@ -6,7 +6,7 @@
   <table>
     <tr>
       <td>
-     ${\textsf{\color{#0000B2}ㅤ"Sashay, Shantay, panther on the runway!"ㅤ}}$
+     ${\textsf{\color{#6FA9FF}ㅤ"Sashay, Shantay, panther on the runway!"ㅤ}}$
       </td>
     </tr>
   </table>
